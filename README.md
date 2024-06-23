@@ -1,0 +1,2 @@
+# stajyer_proje
+ 
